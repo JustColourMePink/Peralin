@@ -1,0 +1,2 @@
+- 👋 Hi, I’m JustColourMePink!
+- I'm using this for the projects that I'm going to have to work on as I continue with my MAGD degree.
